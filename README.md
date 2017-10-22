@@ -1,1 +1,1 @@
-A journey of thousand miles .
+A JOURNEY OF THOUSAND MILES .
